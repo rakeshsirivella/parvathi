@@ -1,2 +1,2 @@
 # parvathi
-parvathi tadi
+parvathi tadi virali thummapudi
