@@ -1,2 +1,2 @@
 # parvathi
-parvathi tadi
+parvathi tadi d/o venkateswara rao
